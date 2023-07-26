@@ -1,1 +1,1 @@
-itself clean taught near sat crack palace concerned shinning bend pole anything route signal blue
+goes rise children hearing wind sun soil adjective shall place old lying scared level gun
