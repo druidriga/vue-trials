@@ -1,1 +1,1 @@
-sell wear gone sum outer aid closely pair comfortable pattern dish accurate fed inside difficulty
+aware atomic lake deer football curious rise today pocket wheel change faster cool stairs pound
