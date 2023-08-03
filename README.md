@@ -1,1 +1,1 @@
-planet tried breakfast lower branch equal thrown sat pound onto coat pet government fastened sheet
+adult planning improve ask noted adjective say atomic slept whose wait average listen itself stick
