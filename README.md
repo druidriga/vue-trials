@@ -1,1 +1,1 @@
-adult planning improve ask noted adjective say atomic slept whose wait average listen itself stick
+shelter typical record cook molecular queen influence touch another power memory your am heading inch
