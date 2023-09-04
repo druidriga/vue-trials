@@ -1,1 +1,1 @@
-bone voyage reach colony face quickly radio friendly smile kitchen proper step identity prepare thou
+arrive weak adjective hang roll fog being sleep coal plenty design win series machine harbor
