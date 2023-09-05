@@ -1,1 +1,1 @@
-arrive weak adjective hang roll fog being sleep coal plenty design win series machine harbor
+talk rate animal air bare cause spoken phrase office draw apartment alphabet where board colony
