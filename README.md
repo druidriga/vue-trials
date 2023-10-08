@@ -1,1 +1,1 @@
-seed thin eye mouth your if record friendly folks nearby express consonant quarter underline past
+newspaper because rich save off original path thought east season right tree see sign place
