@@ -1,1 +1,1 @@
-newspaper because rich save off original path thought east season right tree see sign place
+believed animal keep toy chosen closely war diagram prize author including foreign else around gas
