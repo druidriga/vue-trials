@@ -1,1 +1,1 @@
-future at pull religious compare neck quietly cage useful tongue being certain distant sheet her
+color leader therefore ancient instead must doctor taken left effort notice reason symbol pupil planning
