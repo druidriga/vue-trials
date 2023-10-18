@@ -1,1 +1,1 @@
-color leader therefore ancient instead must doctor taken left effort notice reason symbol pupil planning
+bar pride circus strike weigh check alphabet phrase organization friend nothing turn beautiful thy create
