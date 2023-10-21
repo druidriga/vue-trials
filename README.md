@@ -1,1 +1,1 @@
-slave tiny laid origin family prove establish night brief paragraph poor tobacco useful camp negative
+near shaking complex roof enemy quarter missing shore captain across dress movie symbol grade operation
