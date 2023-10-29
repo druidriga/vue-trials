@@ -1,1 +1,1 @@
-standard want win certain hot sentence power shade clear dream straw excellent he trip its
+chest laid danger pale dish spin leaving primitive stuck receive extra stretch had fish require
