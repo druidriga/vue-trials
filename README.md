@@ -1,1 +1,1 @@
-speed different cannot curious chose snow eight pain porch four taken give sick came compass
+star swept taken community might bus cover paper season away quietly fight room being sum
