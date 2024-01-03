@@ -1,1 +1,1 @@
-load rising queen race vowel buried never mouse leader dollar dollar book such east sweet
+hold determine wonderful tightly dear suppose unhappy enjoy tube eventually bridge twice become fine sun
