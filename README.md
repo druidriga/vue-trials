@@ -1,1 +1,1 @@
-lucky successful activity trunk water bar experiment married select doll tax mean typical last thee
+zulu gently badly manner specific golden coast believed angry afraid traffic even struggle music world
