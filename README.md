@@ -1,1 +1,1 @@
-zulu gently badly manner specific golden coast believed angry afraid traffic even struggle music world
+knew cloth country metal breakfast break courage last laugh temperature sheet complex longer famous somebody
