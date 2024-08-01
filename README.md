@@ -1,1 +1,1 @@
-finish ground aware handsome swim thought percent easier found hunter front apple held easier circus
+upon paid experiment scientist speed wheel discuss hung serve spent replied card late telephone border
